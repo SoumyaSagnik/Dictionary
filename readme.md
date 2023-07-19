@@ -2,6 +2,9 @@
 - given to sudden and unaccountable changes in mood and behavior.
 - unpredictable
 
+`Collate`
+- collect and combine (texts, information, or data).
+
 ---
 
 `Wily`
