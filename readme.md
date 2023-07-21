@@ -7,6 +7,11 @@
 
 ---
 
+`Unscrupulous`
+- having or showing no moral principles.
+
+---
+
 `Wily`
 - skilled at gaining an advantage, especially deceitfully.
 
