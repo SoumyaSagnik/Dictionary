@@ -9,3 +9,6 @@
 
 `Wily`
 - skilled at gaining an advantage, especially deceitfully.
+
+`Wistfully`
+- with a feeling of vague or regretful longing.
