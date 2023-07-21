@@ -12,6 +12,11 @@
 
 ---
 
+`Vigil`
+- a period of keeping awake during the time usually spent asleep, especially to keep watch or pray.
+
+---
+
 `Wily`
 - skilled at gaining an advantage, especially deceitfully.
 
