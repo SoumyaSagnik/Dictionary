@@ -7,6 +7,12 @@
 
 ---
 
+`Frivolous`
+- not having any serious purpose or value.
+- carefree and superficial person
+
+---
+
 `Unscrupulous`
 - having or showing no moral principles.
 
