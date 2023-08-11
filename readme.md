@@ -13,6 +13,11 @@
 
 ---
 
+`Pulverize`
+- reduce to fine pieces.
+
+---
+
 `Unscrupulous`
 - having or showing no moral principles.
 
